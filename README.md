@@ -2,6 +2,8 @@
 
 Một số quốc gia trả tiền để người dùng làm khảo sát
 
+**[️🛒️🛒Mua Proxy Ngay](https://9proxy.com/pricing)**
+
 Ai ngờ làm khảo sát online lại có thể kiếm tiền thật đấy! Ở một số quốc gia như Mỹ, Anh, Canada, các công ty rất chịu chi, trả từ vài đô đến cả chục đô cho mỗi khảo sát tùy độ dài và độ phức tạp. Nhưng vấn đề là bạn phải chứng minh IP đang ở đúng quốc gia đó. Ngồi ở Việt Nam mà muốn nhận tiền từ Mỹ thì không dễ.
 
 ![Mình đã kiếm được 200$ bằng việc làm khảo sát online](./khao_sat_kiem_tien_01_90faa83375.webp)
